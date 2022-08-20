@@ -1,1 +1,0 @@
-# TELUS_UPDATE
